@@ -1,1 +1,0 @@
-# malpi-1st-github-journey
